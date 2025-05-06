@@ -17,3 +17,5 @@ Here are some ideas to get you started:
 
 
 - 🔭🌞 Advancing Skills Through Practical Experience
+
+![Hi](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExa2RieHNkcmdnejB3ODV3YXFvOXRhYXFyZWN4ZmVjeDhzOGQwenRwciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hAllPPhAuqKM90z26Q/giphy.gif)
